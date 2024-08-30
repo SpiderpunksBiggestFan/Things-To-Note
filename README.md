@@ -34,11 +34,8 @@
                         
             Inside Job               Scott Pilgrim
 
-    ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 
-   
-               ﹒    Special thanks to...   
-   ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　
-﹒                                                                ﹒  
 
-                          My muse (^▽^ʃ♡ƪ)
+   ﹒    Special thanks to...   
+     My muse (^▽^ʃ♡ƪ)
+
                           
