@@ -1,4 +1,4 @@
-   ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . 
+
 # Things-To-Note
             ﹒    Read it please before you interact!  ﹕
 
@@ -12,7 +12,7 @@
   
   Please let me know if I offend you!
    
-   ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
+    ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 
    
                ﹒    (Current) Claimed Fandoms  ☆             
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
