@@ -2,7 +2,7 @@
 # Things-To-Note
             ﹒    Read it please before you interact!  ﹕
 
-  ＞ ＞ I have special interests that I chat about consistently
+  **＞ ＞ I have special interests that I chat about consistently**
   
     - I have a job, so I'm not online for parts of the day
   
