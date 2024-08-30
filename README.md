@@ -4,14 +4,15 @@
 
   ＞ ＞ I have special interests that I chat about consistently
   
-    I have a job, so I'm not online for parts of the day
+    - I have a job, so I'm not online for parts of the day
   
-    I am 18. Don't talk to me unless you're close to that age please, lol.
+    - I am 18. Don't talk to me unless you're close to that age please, lol.
   
-     I don't have a DNI. I block/hide you if you annoy me ¯\_(:/)_/¯
+    - I don't have a DNI. I block/hide you if you annoy me ¯\_(:/)_/¯
   
-      Please let me know if I offend you!
-   
+     - Please let me know if I offend you!
+     
+  +
     ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 
    
          ﹒    (Current) Claimed Fandoms  ☆  
