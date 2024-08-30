@@ -18,12 +18,20 @@
                
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
                                    ↖
+                                   
  Good Omens                            
+ 
                       Across the Spiderverse/Into The Spiderverse
+                      
         Percy Jackson
+        
                                  TMNT (Comics, TV Shows)
+                                 
             Dexter
+            
                         Bojack Horseman            Jojo's
+                        
+                        
             Inside Job               Scott Pilgrim
 
     ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 
