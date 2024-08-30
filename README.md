@@ -21,6 +21,7 @@
             Inside Job               Scott Pilgrim
 
    ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵  ︵︵
+   
                ﹒    Special thanks to...   
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　
 ﹒                                                                ﹒  
