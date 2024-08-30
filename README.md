@@ -19,9 +19,9 @@
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
                                    ↖
                                    
- Good Omens                            
+                      
  
-                      Across the Spiderverse/Into The Spiderverse
+    Good Omens                Across the Spiderverse/Into The Spiderverse
                       
         Percy Jackson
         
