@@ -9,6 +9,7 @@
   Please let me know if I offend you!
    
    ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵  ︵︵
+   
                ﹒    (Current) Claimed Fandoms  ☆                        
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
                                    ↖
