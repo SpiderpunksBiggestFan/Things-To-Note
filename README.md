@@ -26,11 +26,11 @@
                         Bojack Horseman            Jojo's
             Inside Job               Scott Pilgrim
 
-   ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
+    ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 
    
                ﹒    Special thanks to...   
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　
 ﹒                                                                ﹒  
+
                           My muse (^▽^ʃ♡ƪ)
                           
-   ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . 
