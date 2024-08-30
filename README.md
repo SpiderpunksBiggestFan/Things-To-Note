@@ -12,9 +12,9 @@
   
   Please let me know if I offend you!
    
-   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵  ︵︵
+   ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
    
-               ﹒    (Current) Claimed Fandoms  ☆                        
+               ﹒    (Current) Claimed Fandoms  ☆             
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
                                    ↖
  Good Omens                            
@@ -25,7 +25,7 @@
                         Bojack Horseman            Jojo's
             Inside Job               Scott Pilgrim
 
-   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵   ︵︵  ︵︵
+   ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
    
                ﹒    Special thanks to...   
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　
