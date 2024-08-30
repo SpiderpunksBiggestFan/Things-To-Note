@@ -14,7 +14,7 @@
    
     ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 ︵︵　 
    
-               ﹒    (Current) Claimed Fandoms  ☆           
+               ﹒    (Current) Claimed Fandoms  ☆  
                
    ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 ︶︶　 
                                    ↖
